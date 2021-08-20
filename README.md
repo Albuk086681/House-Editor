@@ -1,2 +1,2 @@
 # House-Editor
-Frame work deaign to produce projectvframe work
+Frame work -Dimensioning idea and provide workplacess to actualized in full circular of project developement
