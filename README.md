@@ -17,7 +17,7 @@ definition theory from Justise in Law inside faderal Goverment of Malaysia Regio
 to provide and produce with Faderal Goverment infrastructure standard management system.  As a house syndicate valueable element of Leadership and resource to provides as an official resource to produce and develope to any custumers and organization as a Private House Syndicate - Managent Directory
 that applicable to present in Harmonius definition theory and harmonius definition and design for any custumers or Faderal Organization.that needs by Director Service.
 
-#- Leaders in three definition of Bereaucracy Administration. Tripatisme for leaders, tripatisme for management system and process,.tripatisme is the way of life style,policies to define and produce from Director management service with custers and organization.
+# Leaders in three definition of Bereaucracy Administration. Tripatisme for leaders, tripatisme for management system and process,.tripatisme is the way of life style,policies to define and produce from Director management service with custers and organization.
 Produce in Leadership in command or Leadership style to handle organization, Tripatisme value  of leadership is another definition theory Private House Syndicate to actualized for performance indicators and stability to conduct and operates Faderal Organozation by their 
 style of leadership. Develope resource will focused in Organization process management for their recovery produce and product to prevent, Identify leadership performance and stabality from.their implication that givenbfrom,leadership behaviour,.Element that provides or trigger 
 in complex stimuli in.terms.of quality management objective to produce and develope in.International Standard og Bereaucracy Adminstration.
